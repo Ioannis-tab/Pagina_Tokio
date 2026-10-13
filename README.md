@@ -1,2 +1,2 @@
 # Pagina_Tokio
-Califiqueme profe
+Califiqueme profesora
